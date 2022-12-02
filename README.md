@@ -5,6 +5,7 @@
 - A guitar player.
 - Ask me about anything, I'm happy to help!
 - 2022 Goals: Learn something new / Expand knowledge / Alive Have a fun day!
+- A Student Of FuZhou University.
 
 ### Work Experience
 - 2022.01 ~ 2022.3 working @BiliBili
